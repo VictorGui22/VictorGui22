@@ -8,4 +8,4 @@ Meu nome é Victor Guilherme
 
 ### Como entrar em contato comigo 📫
 
-vitorgui@gmail.com
+vitorgui22@gmail.com
